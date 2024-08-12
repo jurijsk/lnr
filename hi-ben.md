@@ -50,11 +50,14 @@ Long story short.  Feel free to pick one, or none if you are planning to store t
 I think the best option will be if you can place the bike back to the cellar and drop the cellar, lock it and drop keys into my mailbox. My surname is on the label.
 
 
+
+
+### Signing off
+
 Let me know if this plan works for you or if you have any questions.
 
-Signing off
-
-I hope you will have a great time with your dad, have fun and stay safe.
+Otherwise, I hope you will have a great time with your dad, have fun and stay safe.
 
 Best,
+
 Juri
